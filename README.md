@@ -1,0 +1,2 @@
+# rhere
+Ubah pola pikir
